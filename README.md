@@ -15,7 +15,7 @@ Panel 9, top right balloon over emu head. Panel 14, top center over leopard's le
 
 **Camberwell Beauty/Mourning Cloak Butterfly**
 
-![Mourning Cloak Butterfly](http://en.wikipedia.org/wiki/Nymphalis_antiopa#mediaviewer/File:Nymphalis_antiopa_(Suruvaippa).jpg)
+![Mourning Cloak Butterfly](http://upload.wikimedia.org/wikipedia/commons/thumb/6/61/Nymphalis_antiopa_%28Suruvaippa%29.jpg/1024px-Nymphalis_antiopa_%28Suruvaippa%29.jpg)
 Two copies are being held in the horse's mouth on panel 14. They are mostly purple with yellow edges on their wings.
 
 **Cardinal Beetle**
