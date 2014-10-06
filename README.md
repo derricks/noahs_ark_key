@@ -19,7 +19,8 @@ Panel 9, top right balloon over emu head. Panel 14, top center over leopard's le
 Two copies are being held in the horse's mouth on panel 14. They are mostly purple with yellow edges on their wings.
 
 **Cardinal Beetle**
-![Red-headed Cardinal Beetle](http://en.wikipedia.org/wiki/Cardinal_beetle#mediaviewer/File:Pyrochroa_serraticornis02.jpg)
+![Red-headed Cardinal Beetle](http://upload.wikimedia.org/wikipedia/commons/thumb/5/55/Pyrochroa_serraticornis02.jpg/1024px-Pyrochroa_serraticornis02.jpg)
+
 Panel 3 to left of narwhal. Panel 14, lower left of bug sign. All red shell.
 
 **Centipede**
@@ -31,6 +32,8 @@ Far right flag on building on panel 3. Lower right of picture on squirrel in top
 Middle under pink balloon on panel 8? Large sign to right of red balloon on panel 2? Black bugs with outspread wings
 
 **Colorado Beetle/Potato Bug**
+
+![Colorado Beetle](http://upload.wikimedia.org/wikipedia/commons/thumb/2/21/Colorado_potato_beetle.jpg/1024px-Colorado_potato_beetle.jpg)
 
 On picture on squirrel on panel 11. Upper left of bug picture on panel 14. Yellow beetles with long black stripes.
 
@@ -44,10 +47,12 @@ Middle flag on left building (partly covered by narwhal horn) on panel 3. On bui
 
 **Garden Tiger Moth**
 
-![Mounted Garden Tiger Moth](http://en.wikipedia.org/wiki/Garden_tiger_moth#mediaviewer/File:Arctia_caja.o1.jpg)
+![Mounted Garden Tiger Moth](http://upload.wikimedia.org/wikipedia/commons/c/cc/Arctia_caja.o1.jpg)
 Lower left in front of toucan on panel 10. To right of fish poster on camel's back on panel 16.
 
 **Magpie Moth**
+
+![Magpie Moth](http://upload.wikimedia.org/wikipedia/commons/thumb/a/ad/Abraxas_grossulariata_MHNT.jpg/1920px-Abraxas_grossulariata_MHNT.jpg)
 
 On bug picture on squirrel on panel 11. Middle insect on poster on far left (above locust) on panel 2.
 
