@@ -3,6 +3,8 @@ Answer key for Mike Wilks' Ultimate Noah's Ark
 
 **Bee-eating/Checkered Beetle**
 
+![Checquered Beetle](https://encrypted-tbn2.gstatic.com/images?q=tbn:ANd9GcRy8l6OUmGjmY-h_TOoHcWqQE1yjKFPAStj4r1dsfsX3Wxth6dW)
+
 To right of narwhal head on panel 3. Red/purple/red/purple/red beetles. Lower right of bug picture on panel 14.
 
 **Brimstone Butterfly**
