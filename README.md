@@ -7,6 +7,8 @@ To right of narwhal head on panel 3. Red/purple/red/purple/red beetles. Lower ri
 
 **Brimstone Butterfly**
 
+![Brimstone Butterfly](http://fleetpond.files.wordpress.com/2009/03/butterfly-brimstone.jpg)
+
 Lower right on panel 8 (under kinkajou). Lower right on panel 9, to right of stage with girl and farm animals. Yellow butterflies with an orange spot on each wing.
 
 **Bumble bee**
@@ -21,7 +23,7 @@ Two copies are being held in the horse's mouth on panel 14. They are mostly purp
 **Cardinal Beetle**
 ![Red-headed Cardinal Beetle](http://upload.wikimedia.org/wikipedia/commons/thumb/5/55/Pyrochroa_serraticornis02.jpg/1024px-Pyrochroa_serraticornis02.jpg)
 
-Panel 3 to left of narwhal. Panel 14, lower left of bug sign. All red shell.
+Panel 3 to left of narwhal. Panel 14, lower left of bug sign. All red shell. (Note the picture here is of a red-headed cardinal beetle, which is different than what's in the book).
 
 **Centipede**
 
