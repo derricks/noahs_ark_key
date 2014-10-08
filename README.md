@@ -15,7 +15,7 @@ Lower right on panel 8 (under kinkajou). Lower right on panel 9, to right of sta
 
 **Bumble bee**
 
-Panel 9, top right balloon over emu head. Panel 14, top center over leopard's left ear?
+Panel 9, top right balloon over emu head. Panel 14, top center over leopard's left ear.
 
 **Camberwell Beauty/Mourning Cloak Butterfly**
 
@@ -34,7 +34,7 @@ Far right flag on building on panel 3. Lower right of picture on squirrel in top
 
 **Cicada**
 
-Middle under pink balloon on panel 8? Large sign to right of red balloon on panel 2? Black bugs with outspread wings
+Middle under pink balloon on panel 8. Large sign to right of red balloon on panel 2. Black bugs with outspread wings
 
 **Colorado Beetle/Potato Bug**
 
