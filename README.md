@@ -97,17 +97,19 @@ There are a variety of colorings of this type of butterfly. The picture above wa
 
 ![Scarce Swallowtail](http://upload.wikimedia.org/wikipedia/commons/7/77/Iphiclides_podalirius01.jpg)
 
-Panel 4, the sign on the building. Panel 13 on the jacket of the Arctic fox?
+![Caterpillar](https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&ved=0CAcQjRw&url=http%3A%2F%2Fflickrhivemind.net%2FTags%2Ftaxonomy%3Afamily%3Dpapilionidae%2FInteresting&ei=2LF7VOgDxc2IAuWcgbgD&bvm=bv.80642063,d.cGE&psig=AFQjCNGPEiNEwEQMCMiSmhif6SezEyRo3A&ust=1417478989527621)
+
+Panel 4, the sign on the building. Panel 9, left, within border detail of building (the larva).
 
 **Scorpion**
 
-Panel 12 on blue sign in lower center.
+Panel 12 on blue sign in lower center. Panel 2, on the sign attached to the green balloon (also there, the snail)
 
 **Seven-Spot Ladybird**
 
 aka: Ladybugs
 
-One is on bug poster on panel 13.
+One is on bug poster on panel 13. One is on panel 12, as decoration on building, between Oryx horns.
 
 **Spider Beetle**
 
