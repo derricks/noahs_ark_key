@@ -127,7 +127,7 @@ One is panel 12, far lower right (under balloons).
 Birds
 -----
 
-** Andean Condor **
+**Andean Condor**
 
 ![Andean Condor](http://upload.wikimedia.org/wikipedia/commons/b/b9/AndeanCondorMale.jpg)
 
@@ -135,103 +135,103 @@ Birds
 
 Panel 1, top middle, flying towards the left.
 
-** Arctic Tern **
+**Arctic Tern**
 
 ![Arctic Tern](https://evenmoreseniorbushe.files.wordpress.com/2013/06/arctic-tern.jpg)
 
 Panel 1, far right, to the right of the polar bear. Panel 9, upper rightmost bird.
 
-** Atlantic Puffin **
+**Atlantic Puffin**
 
 ![Atlantic Puffin](http://upload.wikimedia.org/wikipedia/commons/c/c4/Atlantic_puffin_062.jpg)
 
 Panel 14, lower left, to the left of the insect poster.
 
-** Avocet **
+**Avocet**
 
 ![Avocet](http://upload.wikimedia.org/wikipedia/commons/c/c5/Pied_Avocet_Recurvirostra_avosetta.jpg)
 
 Both are on panel 11. One is flying to the right to the right of the monkey next to the lion's nose. One is in the bottom middle of the page, above the warthog.
 
-** Bald Eagle **
+**Bald Eagle**
 
 ![Bald Eagle](http://www.nearfamous.com/Images/NearFamousWebImagesOptimized/BaldEagles/3469-13BaldEaglePerched.jpg)
 
 Panel 12, next to lamppost on right.
 
-** Barn Owl **
+**Barn Owl**
 
 ![Barn Owl](http://upload.wikimedia.org/wikipedia/commons/c/c6/Tyto_alba_-British_Wildlife_Centre,_Surrey,_England-8a_(1).jpg)
 
 Panel 9, under the tail of the scarlet macaw. Panel 16, under the giraffe on the right.
 
-** Bewick's Swan **
+**Bewick's Swan**
 
 ![Bewick's Swan](http://upload.wikimedia.org/wikipedia/commons/4/4a/Cygnus_bewickii_01.jpg)
 
 Panel 14, upper right, to the left of the panda.
 
-** Black-and-yellow Broadbill **
+**Black-and-yellow Broadbill**
 
 ![Black-and-yellow Broadbill](http://orientalbirdimages.org/images/data/img_7292a.jpg)
 
 Both are on panel 5, in the top middle, to the left of the dolphinfish.
 
-** Blue Tit **
+**Blue Tit**
 
 ![Blue Tit](http://sulgrave.org/cms/wp-content/uploads/2012/01/Blue-tit02.jpg)
 
 Panel 4, middle bottom, under the right dolphin. Panel 9, on the poster of birds, upside-down on the trunk of the tree.
 
-** Blue-winged Pitta **
+**Blue-winged Pitta**
 
 ![Blue-winged Pitta](http://birdingasia.org/wp-content/uploads/2012/11/bluewingedpitta.jpg)
 
 Both are on panel 8, in the upper right, roughly above the goat but below the albatross.
 
-** Brown Kiwi **
+**Brown Kiwi**
 
 ![Brown Kiwi](http://cf067b.medialib.glogster.com/media/21/217ae200dce9466acab3bac9d94af04bae4ea69808b8036d488dfba50c6be824/z8040020-brown-kiwi-spl-jpg.jpg)
 
 Panel 14, to the left of the raccoon.
 
-** Brown Thrasher **
+**Brown Thrasher**
 
 ![Brown Thrasher](http://identify.whatbird.com/img/4/3118/image.aspx?x=250)
 
 Both are on page 6, flying together on the right side.
 
-** Budgerigar **
+**Budgerigar**
 
 ![Budgerigar](http://upload.wikimedia.org/wikipedia/commons/e/ec/Budgerigar-strzelecki-qld.jpg)
 
 Panel 4, lower right. Panel 9, on top of leftmost lamppost.
 
-** Canada Goose **
+**Canada Goose**
 
 ![Canada Goose](http://billdraker.com/cpg/albums/userpics/10002/094E6671_Canada_Goose_in_Flight_6.jpg)
 
 Panel 9, as a large balloon across the top half of the page. Panel 12, likewise, but flying right.
 
-** Cockatiel **
+**Cockatiel**
 
 ![Cockatiel](http://www.petco.com/assets/product_images/live_animal/cockatiel_D.jpg)
 
 Panel 9, bottom middle, to the right of the elephant. Panel 12, sitting on silhouette of scorpion in left-middle of page.
 
-** Collared Pratincole **
+**Collared Pratincole**
 
 ![Collared Pratincole](http://arnikatravel.com/wp-content/gallery/birds/collared-pratincole-photo-gabor-orban.jpg)
 
 Panel 1, upper left. Panel 4, upper right.
 
-** Common Cassowary **
+**Common Cassowary**
 
 ![Common Cassowary](http://3.bp.blogspot.com/-nmz-qLXJMmc/Tv8WX7NYuCI/AAAAAAAAEls/GFdQ19iLXz4/s1600/Southern+Cassowary.jpg)
 
 Panel 10, bottom middle. Panel 14, top middle.
 
-** Common Turkey **
+**Common Turkey**
 
 ![Common Turkey](http://cdn1-www.liveoutdoors.com/assets/uploads/2014/03/turkey.jpg)
 
