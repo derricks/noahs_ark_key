@@ -157,7 +157,7 @@ Both are on panel 11. One is flying to the right to the right of the monkey next
 
 ![Bald Eagle](http://www.nearfamous.com/Images/NearFamousWebImagesOptimized/BaldEagles/3469-13BaldEaglePerched.jpg)
 
-Panel 12, next to lamppost on right.
+Panel 12, next to lamppost on right. Panel 10, in window on the left side.
 
 **Barn Owl**
 
@@ -169,7 +169,7 @@ Panel 9, under the tail of the scarlet macaw. Panel 16, under the giraffe on the
 
 ![Bewick's Swan](http://upload.wikimedia.org/wikipedia/commons/4/4a/Cygnus_bewickii_01.jpg)
 
-Panel 14, upper right, to the left of the panda.
+Panel 14, upper right, to the left of the panda. Panel 10, large balloon on the left.
 
 **Black-and-yellow Broadbill**
 
