@@ -1,6 +1,8 @@
 Answer key for Mike Wilks' Ultimate Noah's Ark
 ==============================================
 
+![Noah's Ark Picture](http://www.codex99.com/illustration/images/wilks_noah_1_lg.jpg)
+
 Invertebrates
 --------------
 
